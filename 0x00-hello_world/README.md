@@ -1,1 +1,1 @@
-hello_world
+never trust , stay focus
